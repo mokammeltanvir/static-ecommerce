@@ -1,0 +1,1 @@
+# staticecommerce.github.io
